@@ -57,7 +57,8 @@ to prepare for handstand.
 + *bearcrawls* 1 - 1 - 2
 + *tabletop* 25'' - 30'' - 60''
 
-*comments* had climbing yesterday, might be bit tired still. first effort
+#### Comments
+Had climbing yesterday, might be bit tired still. first effort
 felt good, feel like i am getting stronger. 
 tabletop hold for 60'' resulted in twitching in lower left arm.
 Had to go pretty deep for 60''.
