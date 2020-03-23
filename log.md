@@ -24,11 +24,11 @@ In January I progressed from 2 pull ups the first rep to 4 pull ups the
 first rep.
 
 ## 2020-01-31
-###Strength session
-pullups: 5.5 - 3.5 - 3.5
+### Strength session
++ *pullups* 5.5 - 3.5 - 3.5
 
 ## 2020-02-21
-###Strength session
+### Strength session
 pullups: 4.5 - 3.5 - 3
 pushups: 8 - 8 - 9
 bearcrawls: 1 - 1 - 2
@@ -42,7 +42,7 @@ Walk at least 30' every day.
 Do ankle strength exercise of Kit.
 
 ## 2020-03-02
-###Strength session
+### Strength session
 pullups: 5 - 3 - 3
 pushups: 10 - 8 - 8
 bearcrawls: 1 - 1 - 2
@@ -51,7 +51,7 @@ bearcrawls: 1 - 1 - 2
 Started to incorporate tabletop holds into the strength training routine
 to prepare for handstand.
 
-###Strength session
+### Strength session
 pullups: 5.5 - 3.5 - 2.75
 pushups: 10 - 8 - 7
 bearcrawls: 1 - 1 - 2
