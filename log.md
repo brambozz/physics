@@ -1,7 +1,7 @@
 ## 2020-01-01
 
 I started doing strength training in the spirit of the 
-'Primal Blueprint' by Mark Sisson. This means I do a short, but intense,
+*Primal Blueprint* by Mark Sisson. This means I do a short, but intense,
 strength training session about every 10 days. According to PB this
 should only be done when feeling good and energized. The 10 days then
 leaves plenty of time for the muscles to restore and grow a little
@@ -9,7 +9,7 @@ stronger.
 
 Doing pullups, pushups and bear walks.
 
-Also did 'Sportklimmen A', first climbing course.
+Also did *Sportklimmen A*, first climbing course.
 
 Starting regular strength workouts. The current program is:
 1. Pull ups until failure, hold at last (partial) pull up.

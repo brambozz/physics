@@ -12,12 +12,13 @@
 ## 2020 plans
 
 ### 2020-05-17: 5k hanzeloop
-Goal: relaxed and injury-free 20'
-Requirements: strong and flexible ankles, mileage
++ *Goal* relaxed and injury-free 20'
++ *Requirements* strong and flexible ankles, mileage
+
 Probably cancelled due to corona.
 
 ## 2021 plans
 
 ### 2020-05-??: 5k hanzeloop
-Goal: injury-free 18'
-Requirements: strong and flexible ankles, considerable training
++ *Goal* injury-free 18'
++ *Requirements* strong and flexible ankles, considerable training
