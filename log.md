@@ -62,3 +62,34 @@ Had climbing yesterday, might be bit tired still. first effort
 felt good, feel like i am getting stronger. 
 tabletop hold for 60'' resulted in twitching in lower left arm.
 Had to go pretty deep for 60''.
+
+## 2020-03-23
+From today I will be more strict on pullup form.
+1. Full relaxed deadhang
+2. Engage core by compressing knees slightly upwards
+3. First full scapular engagement
+4. Continue to full pullup without protruding chin or leg movement
+
+### Strength session
++ *pullups* 3.75 - 2.5 - 2.5
++ *pushups* 10 - 9 - 8
++ *bearcrawls* 1 - 1 - x
++ *tabletop* 30'' - 30'' - x
+
+#### Comments
+Felt a bit sore at the beginning, probably due to yoga session 
+yesterday. Pullups with proper form is definitely harder. I think I did
+a bit of kipping to get 5+ earlier. Pushups felt good, but tweaked my
+back on the last one, so skipped bearcrawls and tabletop.
+
+## 2020-04-04
+
+### Strength session
++ *pullups* 4.5 - 3 - 3
++ *pushups* 10 - 10 - 9
++ *bearcrawls* 1 - 1 - 2
++ *tabletop* 30'' - 30'' - 60''
+
+#### Comments
+This time all felt really good. And pullups really improved! Still had
+twitching in lower left arm at final table top hold.
