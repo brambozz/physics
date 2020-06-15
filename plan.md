@@ -1,7 +1,8 @@
 # Big goals
 
-1. World record 5k running age group 70+
-2. Be able to do ultimate stretches
+1. Qualify for 2028 olympics in sport climbing
+2. World record 5k running age group 70+
+3. Be able to do ultimate stretches
 	+ Full pancake
 	+ Full pike
 	+ Front split
@@ -15,10 +16,25 @@
 + *Goal* relaxed and injury-free 20'
 + *Requirements* strong and flexible ankles, mileage
 
-Probably cancelled due to corona.
+Cancelled due to corona.
+
+### Restore achilles injury
+
+I have had an achilles injury for some years now. It is progressively
+getting better, but I want to double down on my efforts. What I will
+be doing is:
++ Move through range of motion (i.e. squat) many times a day
++ Do isometric and eccentric loading often
++ Slowly increase running mileage by running more often in the week
+	and more distance per run
+
+### Handstand
+
+I want to be able to do a handstand, because it is cool. But also for
+progressing towards handstand pushups as ultimate strength exercise.
 
 ## 2021 plans
 
-### 2020-05-??: 5k hanzeloop
+### 2021-05-??: 5k hanzeloop
 + *Goal* injury-free 18'
 + *Requirements* strong and flexible ankles, considerable training
