@@ -93,3 +93,28 @@ back on the last one, so skipped bearcrawls and tabletop.
 #### Comments
 This time all felt really good. And pullups really improved! Still had
 twitching in lower left arm at final table top hold.
+
+## 2020-04-15
+
+### Strength session
++ *pullups* 4.5 - 3.5 - 3.5
++ *pushups* 11 - 10 - 9
++ *bearcrawls* 2 - 2 - 2
++ *tabletop* 30'' - 30'' - 60''
+
+#### Comments
+Felt tired in my head, but surprisingly got better than last time. I did
+enforce about a 5 minute break between sets, so that probably helped. To
+clarify: 1 bearcrawl is three stretches or one traverse through the 
+room.
+
+## 2020-04-25
+
+### Strength session
++ *pullups* 5 - 3.75 - 3.75
++ *pushups* 12 - 10 - 12
++ *bearcrawls* 2 - 2 - 2
++ *tabletop* 30'' - 30'' - 60''
+
+#### Comments
+Felt supergood today.
