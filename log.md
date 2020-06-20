@@ -1,3 +1,11 @@
+## 2015-01-01
+
+Start doing cold showers sort of regularly.
+
+## 2017-03-01
+
+Become vegan.
+
 ## 2020-01-01
 
 I started doing strength training in the spirit of the 
@@ -118,3 +126,23 @@ room.
 
 #### Comments
 Felt supergood today.
+
+## 2020-06-15
+
+Started with actively trying to improve my sleep quality. The first
+thing I introduce is no screens after 22:00.
+
+## 2020-06-17
+
+### Run
++ *Distance* 5k
+
+## 2020-06-19
+
+### Run
++ *Distance* 5k
+
+#### Comments
+First time in a while I ran 5k without stopping. It was at a low pace,
+but I hardly felt my ankles! I will try to increase running frequency
+to every other day, to observe the effect on my ankles.
