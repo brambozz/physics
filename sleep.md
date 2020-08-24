@@ -6,9 +6,8 @@ plans, but I have to read up on the literature.
 
 ## Plan
 
-- [ ]: No screens after 22:00
+- [x]: No screens after 22:00
 - [ ]: Rhythm; always up at 07:30
 - [ ]: No drinks after ??:??
 - [ ]: Minimize blue light
 - [ ]: Investigate how much darkness matters
-

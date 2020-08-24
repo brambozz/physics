@@ -28,6 +28,17 @@ be doing is:
 + Slowly increase running mileage by running more often in the week
 	and more distance per run
 
+#### New plan 2020-07-05
+
+Because the last run with some sprints seemed to be too much too quick,
+I will stop running in july and really do the exercises better.
+Concretely, do every day at least once:
++ Two leg little jumps until fatigue
++ 10 Full squats
++ Isometric loading by standing on one leg
+
+Also have to read up on some research.
+
 ### Handstand
 
 I want to be able to do a handstand, because it is cool. But also for
