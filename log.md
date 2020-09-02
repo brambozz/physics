@@ -344,5 +344,77 @@ Highest grade climbed: 6a
 
 ## 2020-08-24
 
+Start of soup experiment. For dinner only eat 2 bowls of soup, without
+bread, maybe some fruit as desert. The intention is to eat less at night
+for circadion rhythm. This is why I started logging weight, because I
+don't want to lose any.
+
 ### Weight
 57.9
+
+## 2020-08-25
+
+In general recovery of sunday is going well, but I have been too hard on
+the fingers. I feel the tendons in a couple of fingers, so I think it is
+better to reduce training intensity a bit and focus on technique on
+easier boulders. Maybe only one session a week where I push with finger
+strength.
+
+### Weight
+57.9
+
+## 2020-08-26
+
+### Weight
+57.9
+
+## 2020-08-27
+
+### Weight
+58.4
+
+### Boulder session
+Today I purposely climbed mostly 3 and 4 boulders, because I still felt
+some fingers after last time. I think I went way too heavy and 
+uncontrolled on very fingery boulders and should first recover, before
+trying those things again. I focussed on climbing with good body
+position and footwork, was a really nice session.
+
+Highest grade climbed: 5
+
+## 2020-08-28
+
+### Weight
+57.5
+
+## 2020-08-29
+
+Really low weight, I think because I hardly had lunch yesterday. Will
+try to eat a lot this weekend and see if it will go up again.
+
+### Weight
+57.1
+
+## 2020-08-31
+
+### Boulder session
+I did kind of the same format as last time, so mostly easier (for me)
+boulders which were not too fingery. Overall felt really smooth, and
+even flashed a 6a, which I had done a couple sessions back. So strength
+is definitely improving.
+
+### Weight
+58.3
+
+## 2020-09-01
+
+Broke the experiment today a little bit, because I ate popcorn and candy
+during the movies. Already seemingly improved back, a lot cleaner!
+
+### Weight
+57.4
+
+## 2020-09-02
+
+### Weight
+58.0
