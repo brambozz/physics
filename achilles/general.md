@@ -13,4 +13,10 @@ walk, I pronate, and that may cause excessive load on the tendon.
 
 ## Severity
 
-I should do the VISA-A test to see how severe I am.
+I did the VISA-A questionnaire to see how severe I am. My score was 58.
+
+## Protocol
+
+After a lot of reading, I have decided that I will follow the 
+[Silbernagel protocol](https://journals.sagepub.com/doi/abs/10.1177/0363546506298279) conservatively. I keep a journal in this repository under 
+`silbernagel.md`.
