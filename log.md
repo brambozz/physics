@@ -403,6 +403,8 @@ boulders which were not too fingery. Overall felt really smooth, and
 even flashed a 6a, which I had done a couple sessions back. So strength
 is definitely improving.
 
+Highest grade climbed: 6a
+
 ### Weight
 58.3
 
@@ -418,3 +420,197 @@ during the movies. Already seemingly improved back, a lot cleaner!
 
 ### Weight
 58.0
+
+### Strength session
++ *pullups* 6.5 - 4 - 5.5
++ *pushups* 14 - 12 - 11
++ *pistol squats* 4 - 5 - 6
++ *bearcrawls* 2 - 2 - 2
++ *rest* 5' - 5'
+
+#### Comments
+Wow, a lot stronger even though the last session was a month ago. 
+Pullups have improved the most, that is to be expected from climbing.
+The second set of pullups was interrupted, because I had to laugh.
+Pushups have slightly increased, but the first ten felt like a breeze.
+Really positive session, should do more often :).
+
+## 2020-09-03
+
+### Weight
+57.7
+
+### Boulder session
+Again I did very slow warmup, starting with many 3 and 4 boulders, and
+also climbing almost everything up and down. I find this is quite fun
+and makes you go through very different motions. Even though I did a
+strength workout yesterday, I felt quite strong. I did three new 6a
+boulders and even flashed one of them. Time for some careful exploration
+of some 6b. Still feel the middle fingers and a little bit the right
+ring finger, though.
+
+Highest grade climbed: 6a
+
+## 2020-09-04
+
+### Weight
+57.7
+
+## 2020-09-05
+
+### Weight
+57.7
+
+## 2020-09-06
+
+### Boulder session
+Fingers are still a bit sensitive, so that is two weeks now. I think
+that they are improving. I should continue to watch out for crimping
+too much and slipping feet. There were some new 5 and 6a boulders. Did
+two new 6a boulders, so still feeling stronger.
+
+Highest grade climbed: 6a
+
+### Weight
+57.7
+
+## 2020-09-07
+
+### Weight
+57.7
+
+## 2020-09-08
+
+### Weight
+58.0
+
+## 2020-09-09
+
+### Boulder session
+Fingers start to feel better now during the session. I am also making
+sure I move with control, especially the feet, on fingery boulders.
+There were new 5 boulders today and I did all but one. I flashed quite
+some and a couple were a bit harder. One I did a couple successive 
+tries, but kind of messed up the end. I came back to it 15 minutes
+later and did it at once. I should really start working some 6b as well.
+
+### Weight
+58.0
+
+## 2020-09-10
+
+### Weight
+57.5
+
+## 2020-09-11
+
+### Weight
+57.5
+
+## 2020-09-13
+
+### Weight
+58.1
+
+## 2020-09-17
+
+### Strength session
+
+#### Comments
+I did a strength session by doing pullups on a small wooden shed, 
+pushups on an incline and one leg squats. It was a nice session, I 
+really tried going to fatigue with the squats and reached it. But it
+took many squats, especially on the left leg.
+
+## 2020-09-21
+
+### Weight
+59.6
+
+#### Comments
+Had one week of vacation last week, where I ate a lot and many times a
+day. Seems I can put on weight after all.
+
+## 2020-09-22
+
+### Boulder session
+Best news is that my fingers seem completely healed! So I will keep
+watching myself, that I try not to get unprediced footslips. Got
+some progress on some 6a and 6b. I think some 6b's should be doable.
+
+### Weight
+58.6
+
+## 2020-09-23
+
+### Weight
+58.3
+
+### Eating log
+Logging my food today to find out how many calories I eat approximately.
+
+Lunch ingredients:
++ 1 onion
++ 600g potato
++ 500g sperziebonen
++ 800g red cabbage
+
+According to cronometer I ate about 2700 kcal today. I want to try and
+increase that with about 500 kcal. That should give me quite some extra
+energy during the day and help me put on some weight.
+
+## 2020-09-24
+
+### Weight
+58.3
+
+## 2020-09-25
+
+### Weight
+59.0
+
+## 2020-09-26
+
+### Boulder session
+Good session, felt certainly stronger than last time. I flashed a 6a,
+that was really cool. I also did another 6a, that I had been trying for
+quite some time. I made progress on two other 6a's, until the 
+penultimate move, so I hope to send those next time. Also tried a couple
+more 6b, but most are hard. I should work on slab, because still one
+5 boulder not sent.
+
+### Weight
+58.6
+
+## 2020-09-28
+
+### Weight
+58.6
+
+## 2020-09-29
+
+### Boulder session
+New 6a boulders, really nice challenge for the coming two months. The
+difficulty is a wide range for me. I flashed one and another in two
+tries. Others I tried many time, but only a little progress. I did do
+a 6a slab as well with quite some work, but really happy I got it.
+
+### Weight
+58.6
+
+## 2020-09-30
+
+Filled in the VISA-A questionnaire. My score is 58.
+
+## 2020-10-01
+
+### Weight
+58.2
+
+## 2020-10-03
+
+### Boulder session
+Sent two new 6a boulders I think (or three, I don't exactly remember).
+I made it my goal to send all of them before they get changed. Some will
+be tough, but it is my level. Also finally sent the 5 slab problem that
+I failed over and over.
