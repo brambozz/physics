@@ -614,3 +614,189 @@ Sent two new 6a boulders I think (or three, I don't exactly remember).
 I made it my goal to send all of them before they get changed. Some will
 be tough, but it is my level. Also finally sent the 5 slab problem that
 I failed over and over.
+
+## 2020-10-04
+
+### Strength session
++ *pullups* 7.75 - 6.5 - 5.5
++ *pushups* 14 - 14 - 11
++ *pistol squats* 9/9 - 7/6 - 5/5
++ *bearcrawls* 2 - 2 - 2
++ *rest* 5' - 5'
+
+#### Comments
+I did not feel very good during the session and afterwards I was very
+tired and layed down for 15'. Causes may be tiredness from climbing
+yesterday or eating too many chocoladepepernoten before the session.
+Pullups have improved the most, but pushups also a little bit. The
+scoring for pistol squats is L/R. I first do left until fatigue and then
+right. Next time I will do pushups and squats first, suggestion of Cynt.
+
+### Kracht Cynt
++ *pullups met stoel* 5
++ *opdrukken tegen kast* 5
++ *squat* 20
+
+#### Comments
+Om te beginnen 1 rondje, en niet te ver gaan. Eerst maar eens kijken
+hoeveel spierpijn de volgende dag. Squats helemaal diep kraakte en was
+een vervelend gevoel, daarom niet tot maximale diepte.
+
+## 2020-10-06
+
+### Boulder session
+Good session, but did not send any new 6a. There is one 6a slab that is
+super hard for me. Hopefully will be able to get it soon. Good to work
+on.
+
+### Weight
+59.8
+
+## 2020-10-12
+
+### Boulder session
+A bit longer between boulder sessions than usual, because of waiting
+for corona test results. I felt really good and strong this time and
+sent two new 6a boulders and almost did another. That one had a really
+small last hold that I had not anticipated. So I am getting well under
+way with sending all 6a's in the gym.
+
+## 2020-10-18
+
+### Strength session
++ *pushups* 15 - 15 - 11 
++ *pistol squats* 15/12 - 10/10 - 6/6
++ *bearcrawls* 2 - 2 - 2 
++ *pullups* 7.5 - 6.75 - 6 
++ *rest* 5' - 5'
+
+#### Comments
+
+### Kracht Cynt
++ *pullups met stoel* 5.5
++ *opdrukken tegen kast* 10
++ *squat* 20
+
+#### Comments
+Used. Vooral van optrekken. Squats vooral zwaar aan schouders.
+
+## 2020-10-20
+
+### Boulder session
+Sent two new 6a. One slab and one which I almost got last time. Also
+almost sent another, but I did not dare to climb it out (was a slab).
+This week new 6b, I think a 6b should be possible before they get
+changed up.
+
+## 2020-10-23
+
+### Weight
+59.8
+
+### Boulder session
+Sent two new 6a again, only four to go now. One was the really tough
+one I thought I needed quite some more session on, so really nice that
+I got it. Also got the one where I needed to sit and did not dare to go
+on last time.
+
+## 2020-10-27
+
+### Boulder session
+Warmed up really slow, because it was cold outside, but that worked
+well. I sent two 6a (one in arena) and forgot about one, so still need
+to do 4. Also tried a bunch of 6b quickly and think some are definitely
+doable.
+
+## 2020-10-30
+
+### Boulder session
+
+## 2020-11-03
+
+### Boulder session
+
+## 2020-11-06
+
+### Boulder session
+
+## 2020-11-10
+
+### Boulder session
+Got two extra 6a, only one to go now. One was a slab, where I just had
+to trust my feet. The other one was a ceiling one that went super smooth.
+
+## 2020-11-14
+
+### Boulder session
+Tried the last 6a many times, but did not send. Hopefully next week.
+
+## 2020-11-16
+
+### Strength session
++ *pushups* 15 - 13 - 10
++ *pistol squats* 10/10 - 7/7 - 5/5
++ *bearcrawls* 2 - 2 - 2 
++ *pullups* 7.5 - 6 - 5
++ *rest* 5' - 5'
+
+#### Comments
+This is the third time I was really tired and did not feel good after
+the session. Should find a way to improve that.
+
+### Kracht Cynt
++ *pullups met stoel* 4
++ *opdrukken tegen kast* 10
++ *squat* 20
+
+#### Comments
+Used. Vooral van optrekken. Idee dat ik meer hing bij optrekken.
+Last van pols bij opdrukken. Squats vooral zwaar aan schouders.
+
+## 2020-11-17
+
+### Boulder session
+Last day of the pinks, bouldered together with Riccardo. I sent my first
+6b, which was a slab like one. Also managed to send the last 6a in the
+very last minute.
+
+## 2020-11-20
+
+### Boulder session
+Last day of the pinks, bouldered together with Riccardo. I sent my first
+6b, which was a slab like one. Also managed to send the last 6a in the
+very last minute.
+
+## 2020-11-24
+
+### Boulder session
+New pinks, tried many, did a couple, some nice challenges.
+
+## 2020-11-27
+
+### Boulder session
+
+## 2020-11-30
+
+### Boulder session
+Because I am also going tomorrow, I focussed on doing a couple of easier
+boulders many times, trying to get them more efficient every time.
+Also sent a 6b in two tries.
+
+## 2020-12-01
+
+### Boulder session
+Bouldered together with Erdi, we tried one 6a many times, but in the end
+were too tired.
+
+## 2020-12-04
+
+### Boulder session
+Bouldered again with Erdi. I did one 6a in one go, which I did not 
+expect. Others are really hard!
+
+## 2020-12-08
+
+### Boulder session
+Bouldered together with Riccardo. There is one 6a in a ceiling, which
+I did supermessy, feet cut loose about 4 or 5 times. Made it to the
+penultimate hold, should get it easily next time.
